@@ -1,3 +1,3 @@
 # jerms
 # lesson1_it21_gomez
-# Anoiiiiiiiiii
+john kenneth orozco
